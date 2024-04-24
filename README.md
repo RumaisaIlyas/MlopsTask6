@@ -7,3 +7,6 @@
 ![image](https://github.com/RumaisaIlyas/MlopsTask6/assets/119864397/13a60522-d027-44ae-b72c-4bb94bdb7741)
 
 
+![image](https://github.com/RumaisaIlyas/MlopsTask6/assets/88324452/a2ec6c58-d69f-4861-b9bb-cb1689455535)
+
+
